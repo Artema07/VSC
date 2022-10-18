@@ -12,4 +12,5 @@ compañía creía que debería adoptar el papel de rapera ya que en ese momento 
 mientras que la mayoría de las canciones que cubría incluían raps.10​11​
 Jennie debió oponerse a los deseos de su madre, quien tenía la intención de enviarla a los Estados Unidos para que estudiara 
 abogacía o maestría.12​ Después de hablar sobre su meta de convertirse en una artista, Jennie recibió el apoyo total de su 
-familia.8​ Al regresar a Corea del Sur, Jennie comenzó a estudiar en el Chungdam High School.3​
+familia.8​ Al regresar a Corea del Sur, Jennie comenzó a estudiar en el Chungdam High School.
+Cambio nueva rama
